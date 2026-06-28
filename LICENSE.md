@@ -1,4 +1,4 @@
-# 
+# New Avast Premium Security extensions for Mac OS | Secure Avast Premium Security extensions for PC Windows. Featuring quarantine management and military-grade encryption — optimized for maximum performance on every platform.
 
 
 
